@@ -12,7 +12,7 @@
 | $\color{#6b42dd}{\textsf{“ ♡ Mail}}$ $\color{#b4d44d}{\textsf{and Extra ”}}$ |
 | :---: |
 | <details><summary><b><img width="20" height="20" alt="Image" src="https://files.catbox.moe/w9t3z6.gif" /></b></summary><br>[Pain](https://github.com/thatoneskykid)、 [Meaw](https://github.com/2meowkit)、[Rin](https://github.com/vatrinyasin)、[Mash](https://github.com/ENUMAELlSH)、[Lavie](https://github.com/LAVIEDOTOK)、[Zj](https://github.com/bastetngeb)、[Mike](https://github.com/ch3shyre)、Kuna & others in my following.. hihi goats esp #kunalings i love u guys♡| 
-| <details><summary><b><img width="20" height="20" alt="Image" src="https://files.catbox.moe/s72dia.gif" /></b></summary><br> there's supposed to be a list here where im mentioned on those pt gimmicks account but I'm too lazy and couldn't care less about it anymore. i won't update this either for it|
+| <details><summary><b><img width="20" height="20" alt="Image" src="https://files.catbox.moe/s72dia.gif" /></b></summary><br> there's supposed to be a list here where im mentioned on those pt gimmicks accounts but I'm too lazy and couldn't care less about it anymore. i won't update this either for it|
 
 <picture>
   <source media="(prefers-color-scheme: dark)"srcset="img width="1000"https://files.catbox.moe/vori2x.png" />
